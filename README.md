@@ -1,5 +1,5 @@
-# A187 ID
-BOT WHATSAPP HP Aris187 ID
+# RUKA BOT
+BOT WHATSAPP WAIFU IKY:V
 
 ### Alat dan Bahan
 Siapin alat dan bahannya.
